@@ -4,7 +4,7 @@
 
 Ahn, S. H. & Lee, J. A. (2026)
 
-Submitted to: Journal of the Architectural Institute of Korea (JAIK)
+Prepared for: Journal of the Architectural Institute of Korea (JAIK)
 
 ---
 
