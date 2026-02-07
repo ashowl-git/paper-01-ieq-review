@@ -2,8 +2,6 @@
 
 **Effects of Indoor Environmental Quality on Occupant Health and Productivity: A Context-Dependent Systematic Review with Descriptive Effect-Size Analysis**
 
-Ahn, S. H. & Lee, J. A. (2026)
-
 Prepared for: Journal of the Architectural Institute of Korea (JAIK)
 
 ---
